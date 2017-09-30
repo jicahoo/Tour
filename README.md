@@ -8,3 +8,6 @@
 
 ## 出租
 * http://www.daoduoduo.com/thread-129664-1-1.html
+
+## 巴厘岛攻略
+* http://qq.mafengwo.cn/travels/info.php?id=1258713 
